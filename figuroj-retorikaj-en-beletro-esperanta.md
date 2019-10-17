@@ -36,3 +36,34 @@ epokon ĉiu part' kaperus,
 nek amus mi mapli fervore.
 
 (Ragnarsoon > Auld 1957: 146)
+
+### ADULACIO
+Flata servileco.
+Kp Ind. I, kritikado, laŭdado,
+Ktr.: Ind. I, sakrado
+
+La preposto en Bray
+(Anonima aŭtoro, 18-a jarcento; trad. William Auld)
+
+En oraj tagoj de Karol‘,
+dum lojalec‘ prestiĝis,
+mi vestis anglikana stol‘
+kaj mi enoficiĝis.
+Predikis mi al mia greg‘,
+je reĝojn Di‘ elektas:
+Damnindas kiu al la reg‘
+rezistas aŭ difektas.
+
+Kaj tio nepre estas leĝ‘:
+Ĝis morto mi konstatos,
+ke estu kiu ajn la reĝ‘,
+preposto mi restados.
+
+La krono iris al Jakob‘
+kaj la papismo modis;
+mi prenis ĝin kaj kun aprob‘
+laŭ Vatikan‘ metodis;
+al mia kor‘ la roma kred‘
+perfekte ja konvenis:
+Mi jezuit‘ fariĝus, sed
+revolucio venis.
