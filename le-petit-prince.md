@@ -21,3 +21,16 @@ corrige donc ma dédicace:
 À LÉON WERTH
 QUAND IL ÉTAIT PETIT GARÇON
 
+## I
+
+LORSQUE J'AVAIS SIX ANS j'ai vu, une fois, une
+magnifique image, dans un livre sur la forêt virge qui
+s'appelait Histoires vécues. Ça représentait un serpent
+boa qui avalait un fauve. Volià la copie du dessin.
+
+On disait dans le livre: «Les serpents boas avalent
+leur proie toute entière, sans la mâcher. Ensuite ils ne
+peuvent plus bouger et ils dorment pendant les six
+mois de leur digestion.»
+
+Ajouter 2 paragraphes du premier chapitre
